@@ -1,1 +1,0 @@
-# noobgang.com
